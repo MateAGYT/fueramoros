@@ -1,4 +1,4 @@
-# FUERAMOROS.es - LA NUEVA CAMPAÑA DE RECOLONIZACIÓN DE ESPAÑA
+# fueramoros.es - LA NUEVA CAMPAÑA DE RECOLONIZACIÓN DE ESPAÑA
 
 Campaña para expulsar a todos los moros de España mediante su mayor miedo!! 🐖
 https://fueramoros.es/sprayantimoros.png
